@@ -14,6 +14,4 @@ I'd love to connect with others who share my interests in programming and faith.
 
 
 
-I'm always looking for ways to grow and learn. If you have feedback, suggestions, or just want to collaborate on a project, I'd love to hear from you!
-
 
